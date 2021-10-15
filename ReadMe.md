@@ -1,3 +1,3 @@
 ##shaaaaaaaaaa
 
-Gawr Gura
+Gawr Gura A A
